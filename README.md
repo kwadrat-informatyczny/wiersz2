@@ -6,4 +6,5 @@ Słońce wciąż mi się śni
 
 Nie wszyscy ludzie są źli
 
-Frytki z sosem kup mi :)
+Kebaba zamów mi 
+
